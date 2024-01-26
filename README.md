@@ -1,4 +1,18 @@
-# Hope you have enjoyed hunting journey 
+- https://forms.gle/wJt1iA7E4VkAs1nT9
 
-# With love ~ Team OSOC Batch 2k25
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+- You may get your final key in ashes or hashes
 
