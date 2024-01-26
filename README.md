@@ -1,5 +1,4 @@
-# At every milestone, you encountered secret keys, gradually amassing a collection crucial for unlocking the final destination.
-
+# You used the key collection to get to me.
 
 
 
