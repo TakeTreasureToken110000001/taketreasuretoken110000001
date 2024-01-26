@@ -1,4 +1,4 @@
-# This is the final key to get you ultimately reached your ultimate goal.
+# Hope you have enjoyed hunting journey 
 
-
+# With love ~ Team OSOC Batch 2k25
 
